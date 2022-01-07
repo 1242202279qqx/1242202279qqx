@@ -1,4 +1,4 @@
-### Hi there 👋
+### “You live a new life for every language you speak. If you know only one language, you live only once.” – Czech proverb  e 👋
 
 <!--
 **1242202279qqx/1242202279qqx** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
